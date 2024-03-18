@@ -8,6 +8,7 @@
 ## About <a name = "about"></a>
 
 Mga Raw Footage sites with instructions yawerds
+
 Raw anime means walay subtitles and high quality usually mao ni mga originals gikan crunchyroll nga gipang distribute or gi leak wahahha
 
 ## Method (1) Anime-Raws-Master-List <a name = "anime_raws_masterlist"></a>
