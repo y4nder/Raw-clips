@@ -35,6 +35,7 @@ I think kailangan kag account sa mega tho, log in lang gamit google account
 Adto atong discord server tas search lang ang ngalan sa anime
 
 in ani ang nawong sa key ay
+
 ![alt text](images/image-2.png)
 ![alt text](images/image-3.png)
 ![alt text](images/image-4.png)
